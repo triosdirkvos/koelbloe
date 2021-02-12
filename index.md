@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages // in ontwikkeling
+## Welcome to GitHub Pages // in ontwikkeling ...
 
 You can use the [editor on GitHub](https://github.com/triosdirkvos/koelbloe/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
