@@ -13,4 +13,4 @@ KoelBlue is 1250 EUR rijker en ik heb geen computer meer om te werken, want mijn
 
 Hopeloos ben ik.
 
-Lees alle details in deze blog. Opgelet: wegens erg hoog **HOROR** - gehalte, niet voor personen onder de 18 jaar.
+Lees alle details in deze blog. Opgelet: wegens erg hoog **HORROR** - gehalte, niet voor personen onder de 18 jaar.
