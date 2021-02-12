@@ -9,7 +9,7 @@ BPost verklaart dat het pakje goed afgeleverd is.
 
 KoelBlue wil niet ingaan op onze klacht. Ze blijven e-mails sturen om een formulier in te vullen waarin we verklaren dat we geen pakje ontvangen hebben. Dat kunnen we niet doen, want dan plegen we fraude. We hebben wel degelijk een pakje ontvangen, maar ergens in de logistieke keten is er iets misgelopen. 
 
-KoelBlue is 1250 EUR rijker en ik heb gaan computer meer om te werken, want mijn vorige MacBook Pro is gecrasht. 
+KoelBlue is 1250 EUR rijker en ik heb geen computer meer om te werken, want mijn vorige MacBook Pro is gecrasht. 
 
 Hopeloos ben ik.
 
