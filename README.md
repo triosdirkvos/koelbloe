@@ -1,6 +1,8 @@
 # KoelBloe
 *blog over e-commerce met één van de marktleiders*
 
+![](https://webdocs.be/d/21/Coolblue_-_alles_voor_een_glimlach_25D6E18B.png)
+
 Meer dan 1200 EUR heb ik betaald voor een Apple Mac Mini computer 16GB intern geheugen en 512 GB SSD-opslag.
 
 KoelBlue levert een doos die onderaan opgescheurd is en waarin zich een "tweedekans" iPad cover bevindt. 
