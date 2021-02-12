@@ -1,7 +1,7 @@
 # KoelBloe
 *blog over e-commerce met één van de marktleiders*
 
-![](https://webdocs.be/d/21/Coolblue_-_alles_voor_een_glimlach_25D6E18B.png)
+![](https://webdocs.be/d/21/Coolblue_-_alles_voor_een_glimlach_25D6E2FE.png)
 
 *tijdens het transport wordt de doos geopend en wordt de inhoud verwisseld*
 
