@@ -3,7 +3,9 @@
 
 ![](https://webdocs.be/d/21/Coolblue_-_alles_voor_een_glimlach_25D6E18B.png)
 
-<small>*tijdens het transport wordt de doos geopend en wordt de inhoud verwisseld*</small>
+*tijdens het transport wordt de doos geopend en wordt de inhoud verwisseld*
+
+---
 
 Meer dan 1200 EUR heb ik betaald voor een Apple Mac Mini computer 16GB intern geheugen en 512 GB SSD-opslag.
 
